@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm PUSHKAR RAJ
-**A passionate Web Developer || Cloud Engineer ||  Bike Solo Riding**
+**A passionate Web Developer || Cloud Engineer ||  Solo bike riding**
 
 Email Me 👉 ✉️ **iampushkar0123@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
